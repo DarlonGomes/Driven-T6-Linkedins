@@ -12,3 +12,4 @@
 - [Pablo Souza](https://www.linkedin.com/in/pablo-souza-641a9a225/)
 - [Audrey Wallace da Costa Barros](https://www.linkedin.com/in/audrey-wallace-da-costa-barros-160674184/) :blush:
 - [Hector Antônio Batista Santos](https://www.linkedin.com/in/hectorsantos/) :blush:
+- [Victor Hugo Simões](https://github.com/VicterHuger) :sparkles:
